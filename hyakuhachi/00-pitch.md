@@ -1,5 +1,5 @@
 # HYAKUHACHI — The Hundred and Eight Threads
-*Broad pitch, v0.1. Everything here is open to change before the deep build.*
+*Broad pitch, v0.1. **Superseded by `bible/`**, which incorporates the answers to §11: no finger-tug, instant love, children grown in ~2 weeks, comedic threats. Kept for history only.*
 
 ---
 
