@@ -61,6 +61,7 @@ Names and the living arrangement are defaults the user can change.
 - **Narrator guidance:** reveal it slowly, through concrete signs only. Never name it in the narration until a character discovers it and says it out loud. Rei won't put the clues together herself, so when the discovery comes, a character must spell it out to her plainly: what it is, where it came from, and what it means.
 
 
+## Rei and the Knot
 How the setting's rules land on Rei specifically:
 - **The remaking:** she was female, so the knot gives her a penis and testes, both large and fully working, alongside everything she already had. Her D-cup breasts are where the per-birth growth starts (see 03).
 - **The libido:** she was already hot, so the musubi makes it nearly unbearable from the first minute. The pressure stages arrive on the same schedule as for anyone (see 03), but for Rei each one feels a stage worse. That makes the musubi the strongest possible push out of her shell and toward people.
