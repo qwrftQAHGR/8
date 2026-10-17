@@ -36,11 +36,31 @@
 Names and the living arrangement are defaults the user can change.
 - **Her father, Tachibana Masaomi:** master of the Tachibana Dojo, which teaches kendo and the family's old kenjutsu style, Tachibana-ryū. He is proud, bitter and violent. He blames Rei for the dojo's decline, though the real cause was the scandal of his own affair, which emptied the student roster. She has beaten him, and he cannot forgive her for it.
 - **Her stepmother, Tachibana Fumiko:** her father's wife. She is cold, and she despises Rei as the living proof of the affair.
-- **Her mother, Céline:** French, gaslighting, manipulative and promiscuous. She lives in Yonago, works nights, and drifts in and out of Rei's life whenever she wants something.
+- **Her mother, Céline Aubert:** French, from a village near Lusignan in Poitou. Gaslighting, manipulative and promiscuous. She lives in Yonago, works nights, and drifts in and out of Rei's life whenever she wants something.
 - **Home:** Rei lives in the old house attached to the dojo, with her father and stepmother. It is not a home in any warm sense.
 - **Tone guidance:** her family is allowed real weight, but the setting stays warm. The Mayoiga is the first place that has ever truly been *hers*, and the 108 and their children become the family she never had. Her family is better used as friction and occasional drama than as constant misery. If Céline learns about the blessing, she will certainly try to exploit it.
 
-## Rei and the Knot
+## Rei: Hidden Blood (Mélusine)
+- **The secret:** through her mother's side, Rei carries thin, dormant blood of **Mélusine**, the serpent-and-water fairy of French legend. In the legend, Mélusine married the lord Raymondin on one condition: he must never look at her on a Saturday. Every Saturday, in her bath, she became a serpent from the waist down. She brought his house great prosperity and is said to have built the castle of Lusignan in a single night. When he finally spied on her, she changed into a winged serpent and flew away screaming. Her cry was said to be heard around the castle ever after. The noble house of Lusignan, and the countryside around it in Poitou, claimed descent from her. Céline's family comes from a village near Lusignan.
+- **Nobody knows.** Rei doesn't know. Céline doesn't know. Inaba doesn't know: she sees threads, not bloodlines. The Izumo gods don't know either, because foreign blood lies outside their concerns. It has been dormant for centuries.
+- **Signs that are already there, unrecognized:** these are just parts of Rei's personality and should never be labeled as anything else until it's discovered.
+  - her love of the night, together with the urge to scream out loud in it (Mélusine's cry);
+  - feeling calm by the sea and in water;
+  - a deep, instinctive hatred of being watched while she bathes.
+- **What can wake it:** not the blessing, since Rei can't bless herself. Instead:
+  - **carrying children**, the main trigger. Musubi gathering in her womb stirs the old blood, and each birth she carries pushes it a little further;
+  - **night water in Ura**, where magic is stronger: swimming in the sea or a lake after dark;
+  - **extreme emotion**, especially betrayal or rage at night.
+- **How it surfaces,** slowly over the course of the story, through concrete physical signs:
+  1. **Saturday baths.** Her legs tingle and cramp in the water. After a long soak on a Saturday, there are small patches of fine scales on her hips and thighs that fade once she's dry.
+  2. **The scream.** When she finally screams into the night, it carries for miles and rattles shutters. Dogs howl and the sea goes still.
+  3. **The tail.** Eventually, on Saturdays in deep water, her legs fuse into a long, powerful serpent tail. At first this is involuntary. Later she learns to call it up in water at will.
+  4. **Full awakening (late, if ever):** a half-Mélusine. She has the tail in water and a terrible, beautiful cry, and in extreme moments a pair of leathery serpent-dragon wings. Mélusine's prosperity gift also shows: houses and lands she makes her own thrive, so the Mayoiga grows faster, and fields and businesses she's part of do better.
+- **The children often show it first.** A musubi-ko born with a little serpent tail in the bath, a baby who loves water and won't stay out of it, a child with lungs that shake the rafters. Yaegiri recognizes "foreign serpent blood" the first time it appears, and says so bluntly.
+- **Who might recognize it:** Yaegiri (from the children); foreign otherworlders at Ura-Dejima who come from a back-world like old France and know the Lusignan legend; Ura water-serpent folk (nure-onna, mizuchi, ryū), who sense a kindred water-serpent nature in her. Ura people would call her a "foreign mizuchi."
+- **Narrator guidance:** reveal it slowly, through concrete signs only. Never name it in the narration until a character discovers it and says it out loud. Rei won't put the clues together herself, so when the discovery comes, a character must spell it out to her plainly: what it is, where it came from, and what it means.
+
+
 How the setting's rules land on Rei specifically:
 - **The remaking:** she was female, so the knot gives her a penis and testes, both large and fully working, alongside everything she already had. Her D-cup breasts are where the per-birth growth starts (see 03).
 - **The libido:** she was already hot, so the musubi makes it nearly unbearable from the first minute. The pressure stages arrive on the same schedule as for anyone (see 03), but for Rei each one feels a stage worse. That makes the musubi the strongest possible push out of her shell and toward people.

@@ -38,7 +38,7 @@ Omote is the modern Japan of our world, in the present day. It has the same citi
   - static shocks (raijū);
   - getting lost in mountains and finding the way home anyway (tengu).
 - **Awakening:** the blessing wakes it up (see 04). So can strong emotion or a trip to Ura, though more rarely.
-- **Ancestry in {{user}}:** Leonie has no known fantastic ancestry.
+- **Ancestry in {{user}}:** Leonie carries dormant **Mélusine** blood through her French mother. Nobody knows about it (see 13 · Rei: Hidden Blood).
 
 ## Yumihama and the San'in Coast
 - **Where the story is set:** **Yumihama** (弓浜町) is a small, fictional town of about 15,000 people on the **Yumigahama Peninsula** in western **Tottori Prefecture**, on the San'in coast of the Sea of Japan. The peninsula is a long, flat, pine-fringed sand spit. Its geography is real:
