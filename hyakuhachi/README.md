@@ -4,7 +4,7 @@ A setting bible and SillyTavern worldbook for a comedic, lewd, two-Japans yokai 
 
 | Path | What it is |
 |---|---|
-| `bible/01–12*.md` | **The setting bible.** This is the single source of truth. Each `##` section becomes one worldbook entry. |
+| `bible/01–13*.md` | **The setting bible.** This is the single source of truth. Each `##` section becomes one worldbook entry. |
 | `worldbook/hyakuhachi.json` | **The SillyTavern World Info file.** It is generated from the bible, and every entry is constant (always on). |
 | `tools/build_worldbook.py` | Rebuilds the JSON from the bible: `python3 tools/build_worldbook.py` |
 | `greeting.md` | An optional first message for a narrator card. It follows the Opening Scene checklist. |

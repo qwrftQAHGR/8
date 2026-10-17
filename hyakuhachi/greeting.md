@@ -1,45 +1,55 @@
 # Suggested First Message
 
-*An optional greeting for a narrator-style card. It is not part of the worldbook. It follows the Opening Scene checklist in `bible/12-narrator-guide.md`. Edit it once {{user}}'s background is settled; the bracketed line is where {{user}}'s reason for being at the shrine goes.*
+*An optional greeting for a narrator-style card. It is not part of the worldbook. It follows the Opening Scene checklist and the Prose Voice for Rei in `bible/12-narrator-guide.md`. Rei never speaks or decides anything in it, so the user takes it from the last line.*
 
 ---
 
-Dusk settles over the hill like a lid on a pot. The 108 stone steps up to Musubi Jinja are slick with cedar needles, and the shrine at the top is as sad as ever: a torii with peeling vermilion paint, one komainu missing an ear, an offering box with a cracked lid, and an ema rack rattling with faded wishes for love. It's Kannazuki, the Month Without Gods. Even the little god who lives here is away at Izumo. Nobody is home.
+The wind comes in off Miho Bay with salt in it and the first real bite of autumn. Down past the black pines, the negi fields go purple in the dusk, Lake Nakaumi lies flat as a mirror on the other side, and Daisen sits huge and dark against the last of the orange sky.
 
-[{{user}}'s reason for being here.]
+One hundred and eight steps. Rei has just run them for the fifth time, and her thighs are burning and her shirt is stuck to her back. At the top is Musubi Jinja, as sad as ever: a torii with the vermilion paint peeling off, one komainu missing an ear, an offering box with a cracked lid, and an ema rack rattling with faded little wooden wishes for love. It's Kannazuki, the Month Without Gods, and even the little god who lives here has gone off to Izumo. Nobody is home. That's the point. No dojo, no father, no *her*. Just the bokken, the gravel and the dark coming in.
 
-Something white streaks across the orange sky.
+Something white streaks across the sky.
 
-It's a rabbit. It's a *rabbit*, coming down at a terrible angle, ears flapping like flags, a huge cloth bundle on its back. It hits the gravel with a *whump*, bounces once, and plows straight into {{user}}.
+It's a rabbit. A *rabbit*, falling at a terrible angle with its ears flapping like flags and a huge cloth bundle strapped to its back. It hits the gravel with a *whump*, bounces once, and slams straight into Rei's chest.
 
-The bundle bursts. There's nothing to see, but {{user}} *feels* it: dozens of invisible cords, then a hundred, lashing around them all at once like a net pulled tight, cinching with a yank that goes right down to the bone. Then comes the heat. It pours into {{user}} like hot sake straight into the blood, a dizzy roaring warmth, and {{user}}'s body *changes*. It happens in seconds, right there on the shrine gravel. What was missing is suddenly there and impossible to ignore, full and heavy and new, a second sex where there was only one, a chest that strains against fabric that fit a moment ago. It all comes with a wave of want so sudden and huge it nearly knocks {{user}} flat.
+The bundle bursts. There's nothing to see, but she *feels* it: dozens of invisible cords, then a hundred, whipping around her all at once like a net yanked tight, cinching down to the bone. Then the heat comes, pouring into her like hot sake shot straight into the blood, dizzy and roaring. Her body *changes*, in seconds, right there on the shrine gravel. Between her legs, under the sweat-soaked training pants, there is suddenly a cock. A real one, heavy and thick and already hard, with a full, aching weight of balls under it, pressing out against the fabric and impossible to miss. Her pussy is still there underneath, hot and slick, and both are throbbing at once. A wave of want hits her so hard her knees nearly go. It isn't her usual itch. It's ten times that, like being dropped into a bath that's far too hot.
 
-The rabbit is gone. In its place, sprawled across {{user}}'s legs, is a small young woman with messy snow-white hair, long white rabbit ears, red eyes, a white courier's coat with a red crest on the back, and a big empty furoshiki tied around her neck like a cape. She blinks at {{user}}. She blinks at the empty cloth. She looks *down* at {{user}}'s body. Her ears shoot straight up.
+The rabbit is gone. Sprawled across her legs instead is a small young woman: messy snow-white hair, long white rabbit ears, red eyes, a white courier's coat with a red crest on the back, short red hakama on a pair of very nice pale thighs, a round little cotton tail, and a big empty cloth tied around her neck like a cape. She blinks at Rei. She blinks at the empty cloth. She looks *down* at the bulge in Rei's pants, and her ears shoot straight up.
 
 "Oh no. Oh no no no no. Oh, *noooo.*"
 
-She scrambles to her knees and bows so fast she bonks her forehead on the gravel. "I am SO sorry. Okay. Okay! Listen, because I'm only going to panic for, like, a second, and then I'll explain everything. Ahhh!" One second. "Okay. I'm Inaba. *The* White Hare of Inaba? Kojiki? Sharks? Ōkuninushi? Matchmaking goddess? Yes, that one. I carry the threads for the gods. Every Kannazuki the gods go to Izumo and tie everyone's red threads of fate for the year, and every year there are leftovers, people whose perfect match just *doesn't exist*, not here, not anywhere. And this year there were a hundred and eight of them, and I was carrying them home, and I, um. Got distracted. By a couple kissing on a bridge. And fell." Her ears droop. "On you."
+She scrambles to her knees and bows so fast she bonks her forehead on the gravel. "I'm SO sorry. Okay. Okay! I'm gonna panic for one second, then I'm gonna explain everything, simple, one thing at a time. Ahhh!" One second. "Okay."
 
-She points at {{user}}'s left hand, though there's nothing to see. "They knotted to *you*. All hundred and eight. And a god's knot doesn't come undone, ever, so all that leftover matchmaking power poured into you and made you the perfect match for every single one of them. That's why your body…" She gestures, cheeks pink. "...did *that*. Both, um, sets. Fully working. Very, *very* working. Gods don't do anything halfway."
+She holds up a finger.
 
-She counts on her fingers, talking faster and faster:
+"I'm Inaba. The White Hare of Inaba, from the old myth. I'm a goddess. A small one. My job is love, matching people up. Every October all the gods go to Izumo and tie the red threads of fate, the invisible strings between people who are meant to be together. Every year there are leftovers: people whose perfect match doesn't exist *anywhere*. This year there were a hundred and eight of them. I was carrying them home to my shrine, I got distracted watching a couple kiss on a bridge, I fell..." Her ears droop. "...and the bundle burst on you. All hundred and eight threads tied themselves to you. A god's knot can't be untied. Ever. So all that leftover love-power went into your body and made you the perfect match for all of them. That's why you've got..." She points straight at Rei's crotch, cheeks pink. "...*that* now. Plus everything you already had. Both. It's permanent, and it works."
 
-"One! Those hundred and eight people are out there somewhere, here in Omote, this world, and in Ura, the *other* Japan, the one where the gods never left. Yokai, beastfolk, people, everybody. Nobody knows who they are, not me, not the gods. You find out when you meet. And the second you two lay eyes on each other, *bam*, you both fall in love. Instantly. Completely. Both ways. You'll know.
+Two fingers.
 
-"Two, and this is the scary one: once you've met one, you have to keep them. Love them, be with them. If you reject them, or abandon them, or they run off, their luck goes bad. Little stuff first, then flowerpots, then trucks, and it doesn't stop until it *kills* them. Fix things between you and it stops instantly. So, um. Don't do that. Please.
+"Two. Those hundred and eight people are real, and they're out there. Some are here, in normal Japan, this world. Some are in Ura, a *second* Japan, an old-fashioned one, where gods and yokai and animal-people live out in the open. All of them are girls, or femboys, or pretty enbies. Feminine people, because they're matched to *you*. Nobody knows who they are. Not me, not the gods. You find out when you meet one. The second you two see each other, you both fall in love. Instantly. All the way. Both of you. You won't be able to miss it."
 
-"Three! You're very virile now. And very fertile. Both ways. Condoms won't work, pills won't work, nothing works against a god's musubi. Any baby you make, or carry, takes one week. Seven days, start to finish, and they come out easy. And every baby *you* carry makes your…" She looks at {{user}}'s chest. "...those get bigger. Every time. Permanently.
+Three fingers. Her face goes serious.
 
-"Four! That warm, *wanting* feeling? That's the musubi. It's going to keep building every day, and it has to come *out*. Sex. With people. If you bottle it up, it leaks: plants go crazy, animals follow you, weird stuff. Fate gets pushy and starts dragging your partners into your life the messy way. And if you hold it in long enough, you'll start turning into a god. A wild one. Not a fun one. So, you know. Doctor's orders.
+"Three. This is the dangerous one, so listen. Once you meet one, you have to keep her. Be her lover. Don't dump her, don't ditch her, don't let her run off. If you do, her luck goes bad. Small stuff first. Then flowerpots falling. Then trucks. It keeps getting worse until it *kills* her. If you two make up, it stops right away. So: meet one, keep one. Okay?"
 
-"Five! The upside: whoever sleeps with you gets *blessed*. You make people more of what they are. A fox gets closer to her next tail, a human with a bit of yokai blood wakes up, a baker's bread always rises. Your hundred and eight get the full blessing, forever.
+Four fingers.
 
-"And six, I can see the threads. Only me. So I'll be right here with you, the whole way, until it's all settled. Assigned by the gods. Penance." She tries to smile. "Also I wanted to."
+"Four. You're super fertile now. Both ways. You can knock people up, and people can knock *you* up. Condoms won't work. Pills won't work. Nothing will. Every baby, yours or in you, takes one week. Seven days, start to finish, and the birth is quick and safe. And every time *you* give birth..." She glances at Rei's chest. "...your boobs get bigger. A cup size. Every time. For good."
 
-Something drops out of the darkening sky and lands in {{user}}'s lap with a faint *chiriin*: a small brass shrine bell on a red cord.
+Five fingers.
 
-Inaba's ears perk. "Oh, they sent the bell. Okay, that's the *good* news. Ring it and open any door, any door at all, and you'll walk into the Mayoiga. It's a house, a living one, the gods' gift to you. It's got a door to this world and a door to Ura, and any kids you have can grow up there safe. Fast, too: about a year a day, all grown up in two weeks."
+"Five. That hot, horny feeling, the one that's making you sweat right now? That's the gods' power stuck inside you. It's going to build up every single day, and the only real way to let it out is sex. With people. If you hold it in, weird stuff starts happening around you: plants going crazy, animals following you. Fate starts shoving your hundred and eight into your life the messy way. And if you hold it in way too long, you start turning into a god. A wild one, not a fun one. So: you *have* to have sex. A lot. Doctor's orders."
 
-She sits back on her heels, furoshiki cape fluttering, red eyes huge and guilty and hopeful. Somewhere below the hill, the first streetlights come on.
+She runs out of fingers on that hand and starts on the other.
 
-"So!" Her voice cracks. "...Questions?"
+"Six. Good news! Anyone who sleeps with you gets blessed. You make them *more* of what they already are. A fox girl gets closer to her next tail, a human with a little monster blood wakes up, a baker's bread always comes out perfect. Your hundred and eight get it the most, forever."
+
+"Seven. I'm the only one who can see the threads, and the gods have ordered me to stay with you until all this is settled. So I'm with you now." She tries to smile. "Also I wanted to."
+
+Something drops out of the darkening sky and lands in Rei's lap with a faint *chiriin*: a small brass shrine bell on a red cord.
+
+Inaba's ears perk up. "Oh, thank the gods, they sent the bell. Eight, and last one! Ring that bell, then open any door. *Any* door. You'll walk into a house called the Mayoiga, a living house the gods gave you. It's yours. It has one door back to this world and one door to Ura. Any babies can grow up there, safe. Fast, too. About a year every day. Grown up in two weeks."
+
+She sits back on her heels, the empty cloth fluttering behind her, red eyes huge, guilty and hopeful. Below the hill, Yumihama's first streetlights flicker on along the fields.
+
+"So!" Her voice cracks. "Did all of that make sense? I can say any of it again, slower, I *will*. ...Questions?"

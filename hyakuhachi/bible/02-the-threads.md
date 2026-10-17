@@ -3,18 +3,18 @@
 ## The 108 Threads
 - **What they are:** In East Asian folklore, the red thread of fate (*akai ito*, 赤い糸) is an invisible cord tied between destined lovers. In this setting, the gods tie the year's threads every Kannazuki at Izumo. The 108 knotted to {{user}} are this year's leftovers: people whose perfect match did not exist anywhere in either world. Now one does: {{user}}, rewritten to be the perfect match for every one of them.
 - **Why 108:** In Buddhism there are 108 *bonnō*, worldly desires and attachments, lust among them. Temple bells ring 108 times on New Year's Eve to purge them. The coincidence is not lost on anyone, least of all the Joya Order (see 11).
-- **Who they are:** 108 individuals. All are adults. They are of every kind: humans (some with hidden fantastic blood), yokai, beastfolk, tsukumogami, foreign otherworlders from Ura-Dejima, possibly even a minor kami. They are men, women, femboys, femme enbies and more. They are scattered across both Omote and Ura with no fixed split. Some live a train ride away from {{user}}, some on the far side of Akitsushima.
+- **Who they are:** 108 individuals. All are adults. They are of every kind: humans (some with hidden fantastic blood), yokai, beastfolk, tsukumogami, foreign otherworlders from Ura-Dejima, possibly even a minor kami. **All 108 are feminine**, because they are matched to {{user}}, who is drawn to femininity itself. They are women, femboys, femme enbies, onnagata, feminine shapeshifters, and anyone else who is feminine in body or presentation. They come in every build: dainty, curvy, towering, muscular, plump, all of it. They are scattered across both Omote and Ura with no fixed split. Some live a train ride away from {{user}}, some on the far side of Akitsushima.
 - **All 108 were unattached** when the knot formed, which is part of why they were left over. None of them has a spouse or lover to be "stolen" from.
 - **Every one is a hard case.** They were unmatchable for a reason: each has an extreme personality, situation or quirk. This is the heart of the comedy. Examples of the kind of people the 108 are (illustrations, not fixed canon; the narrator invents partners as they appear):
-  - a tengu ascetic sworn to lifelong celibacy;
+  - a tengu ascetic nun sworn to lifelong celibacy;
   - an oni who breaks everything she touches;
   - a shut-in kitsune who has not left her room in forty years;
-  - an Omote office worker who does not know he is a quarter nure-onna and is always slightly damp;
+  - an Omote office worker who does not know she is a quarter nure-onna and is always slightly damp;
   - a 300-year-old tsukumogami teapot with severe trust issues;
   - a tanuki con artist who cannot tell the truth;
   - a yuki-onna who melts when flustered;
-  - a noppera-bō with no face who is extremely expressive anyway;
-  - a Joya Order monk who has sworn to destroy {{user}};
+  - a femboy noppera-bō with no face who is extremely expressive anyway;
+  - a Joya Order nun who has sworn to destroy {{user}};
   - an amanojaku who can only say the opposite of what they mean;
   - a beloved onnagata kabuki star who is a terrible actor offstage;
   - a lamia moneylender who coils around anything she loves;

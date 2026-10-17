@@ -38,12 +38,47 @@ Omote is the modern Japan of our world, in the present day. It has the same citi
   - static shocks (raijū);
   - getting lost in mountains and finding the way home anyway (tengu).
 - **Awakening:** the blessing wakes it up (see 04). So can strong emotion or a trip to Ura, though more rarely.
-- **Ancestry in {{user}}:** any fantastic ancestry {{user}} has, known or unknown, is set by {{user}}'s persona.
+- **Ancestry in {{user}}:** Leonie has no known fantastic ancestry.
+
+## Yumihama and the San'in Coast
+- **Where the story is set:** **Yumihama** (弓浜町) is a small, fictional town of about 15,000 people on the **Yumigahama Peninsula** in western **Tottori Prefecture**, on the San'in coast of the Sea of Japan. The peninsula is a long, flat, pine-fringed sand spit. Its geography is real:
+  - on one side are **Miho Bay** and the long Yumigahama beach facing the Sea of Japan;
+  - on the other is **Lake Nakaumi**, a still, brackish lagoon;
+  - **Yonago** city lies at its southern root, about 20 minutes away by train;
+  - the port town of **Sakaiminato** sits at its northern tip.
+- **Why here:**
+  - *Inaba's route:* the town lies right under Inaba's flight path from Izumo (to the west, in Shimane) to her home shrine at Hakuto (to the east, in Tottori).
+  - *Myth country:* this is the heartland of the Izumo myths. The tale of the White Hare happened on this coast, Ōkuninushi's legends are all over the region, and Mount Daisen's tengu Hōkibō is famous.
+  - *A thin coast:* the whole San'in coast is thin between the worlds.
+- **The town:**
+  - wide negi (green onion) and white-onion fields between old pine windbreaks;
+  - farmhouses and new-build houses side by side, a shuttered shōtengai with three shops left, a konbini that serves as the social center, a Joyfull family restaurant;
+  - a faded heritage of **Yumihama-gasuri** indigo cotton weaving;
+  - wind off the sea all year, and fierce, grey, snowy winters;
+  - in clear weather, **Mount Daisen** ("Hōki-Fuji"), snow-capped, dominates the southeastern sky.
+  - Locals are friendly, nosy and slow, and they speak the local **Yonago-ben** dialect. A six-foot blonde half-French girl is very noticeable here, and everybody knows who Rei is.
+- **Getting around:**
+  - **JR Sakai Line** trains run every 30 to 60 minutes. The real trains are painted with *GeGeGe no Kitarō* yokai characters, and Yumihama has its own small station.
+  - Yonago Station connects to Matsue (about 30 min), Izumo (about 1 hr), Tottori city (about 1.5 to 2 hrs) and Osaka (about 3 hrs by bus).
+  - **Yonago Kitaro Airport** (its real name) sits on the peninsula, with flights to Tokyo.
+  - Most locals drive. Teenagers bike everywhere against the wind.
+- **Nearby:**
+  - **Sakaiminato's Mizuki Shigeru Road:** a real street of 177 bronze yokai statues honoring the creator of *Kitarō*, with yokai-themed shops, yokai cosplay events and a yokai shrine. It is the safest place in Omote for a real yokai to walk around openly, because anyone with ears, horns or a tail is assumed to be a tourist, a mascot or a cosplayer. The local Kakure love it. Kuroda-san's office is here.
+  - **Kaike Onsen:** a hot-spring resort on the Yonago coast.
+  - **Lake Nakaumi and Matsue:** a castle town across the lake.
+  - **Mount Daisen:** ski slopes, beech forests and the old temple Daisen-ji.
+  - **Izumo Taisha:** an hour west.
+- **Rei's places:**
+  - *Prefectural Yumihama High School* ("Yumikō"): a mid-ranked school where Rei is a third-year;
+  - *the Tachibana Dojo*: her family's dojo and house;
+  - *Musubi Jinja*: up its 108 steps on the dune ridge;
+  - *the beach at night*, where she goes when she can't sleep.
 
 ## Musubi Jinja ("Omusubi-san")
-- **What it is:** Musubi Jinja (結神社) is a small branch shrine of Izumo on a wooded hillside in {{user}}'s town. Locals call it **"Omusubi-san,"** half affectionately and half as a rice-ball joke.
+- **What it is:** Musubi Jinja (結神社) is a small branch shrine of Izumo on a steep, wooded old dune ridge at the landward edge of Yumihama. Locals call it **"Omusubi-san,"** half affectionately and half as a rice-ball joke.
 - **What it looks like:**
-  - 108 worn stone steps up through cedars (locals count them on New Year's);
+  - 108 worn stone steps up through black pines and cedars (locals count them on New Year's, and Rei runs them for training);
+  - from the top, a view over the negi fields to Miho Bay on one side and Lake Nakaumi on the other, with Mount Daisen standing to the southeast;
   - a weathered vermilion torii with peeling paint;
   - two moss-covered komainu guardian dogs, one missing an ear;
   - a small haiden worship hall with a thick Izumo-style shimenawa rope;

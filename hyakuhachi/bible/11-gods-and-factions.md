@@ -19,7 +19,7 @@
 - **What the gods can and can't do:** they cannot untie the knot. They can send help, gifts and vague advice, and gods are terrible at giving clear answers.
 
 ## Komusubi-sama
-- **Who:** the resident god of Musubi Jinja ("Omusubi-san") in {{user}}'s town. A minor kami of matchmaking and small good fortune.
+- **Who:** the resident god of Musubi Jinja ("Omusubi-san") in Yumihama. A minor kami of matchmaking and small good fortune.
 - **Appearance:** short, stout and round, with a dignified topknot and formal priestly robes. They are very proud that their name is also a sumo rank, and they look the part.
 - **Status:** away at the Izumo council when the story begins. They return in early November to find their sleepy shrine soaked in musubi, suddenly popular, and famous in two worlds.
 - **Personality:** earnest, pompous, easily flattered. Thrilled with the popularity and desperate for credit. They treat {{user}} as "my shrine's great miracle." Mildly jealous of Inaba's role.
@@ -57,7 +57,7 @@ Each of the Great Clans wants something from {{user}}: the blessing, a blessed h
 
 ## The Kakure Neighborhood Association and Kuroda-san
 - **The Association:** see 07. It runs the Omote masquerade through ordinary neighborhood associations.
-- **Kuroda-san:** the Association fixer for {{user}}'s area.
+- **Kuroda-san:** the Association fixer for the Yumigahama Peninsula. His office is above a souvenir shop on Mizuki Shigeru Road in Sakaiminato.
   - *Who:* a mujina (badger yokai) who looks like a tired, rumpled, middle-aged salaryman.
   - *Tell:* when he gets too exhausted or exasperated, his face literally slides off, leaving him smooth and faceless (the mujina trick), and he has to put it back on.
   - *Habits:* he quit smoking and now chews gum furiously.

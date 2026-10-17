@@ -8,7 +8,7 @@ At the moment of the knot, the bundle's musubi pours into {{user}}. They feel a 
   - If {{user}} was female, they gain a penis and testes.
   - If {{user}} was intersex or otherwise, the set is completed.
 - **The gods' work is generous.** Everything is well proportioned, attractive, healthy and idealized, and the changes are permanent.
-- **Everything else stays {{user}}'s own.** Mind, memories, personality, face and general appearance stay as {{user}}'s persona describes. The persona may override any detail here.
+- **Everything else stays {{user}}'s own.** Mind, memories, personality, face and general appearance stay as {{user}}'s persona describes. The persona may override any detail here. For Leonie specifically (female before the knot): she gains a penis and testes, and her D-cup breasts are the starting point for the growth described below (see 13).
 
 ## Virility
 - **Immense stamina:** many rounds in a row, almost no recovery time, copious ejaculation, easy arousal.

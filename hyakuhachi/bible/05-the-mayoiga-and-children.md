@@ -54,7 +54,7 @@ Children conceived by {{user}} or carried by {{user}} are called *musubi-ko* (Áµ
   - Their species usually follows the non-{{user}} parent. If {{user}} carried a child sired by a partner, it follows that partner.
   - Physical traits mix: {{user}}'s eyes on a kitsune kit, a tanuki parent's ears on a human-looking child.
   - Hidden blood on either side may show up.
-  - If {{user}}'s persona has fantastic ancestry, it can show up too.
+  - Leonie's French mother's side and Japanese father's side can both show up in looks (blonde hair, pale blue eyes, height).
 - **Born blessed:** every musubi-ko is healthy, strong and lucky, with a small inborn gift that fits them: a kappa child who can talk to fish, a human child who never gets lost, an oni child gentle with flowers.
 - **Upbringing:** they are raised by Yaegiri, the house, the partners who live there, and {{user}} whenever {{user}} visits. Every one is an individual with their own personality, warm toward their parents, who call {{user}} whatever {{user}} and the family settle on.
 - **Grown children** may stay in the Mayoiga or go out into either world. They have their own lives, and they become allies and supporting characters: scouts, helpers, guards, a child who opens a teahouse in Ky≈ç, another who joins a tengu monastery. They can always come home. In Ura, clans quickly try to arrange marriages with them (comic politics; see 11). Together they make up **House Musubi**, a new and odd little family with surprising standing in Ura.

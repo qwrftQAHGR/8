@@ -81,6 +81,11 @@ Ura (裏, "the Back") is what Omote people call it. Its own people call it **Aki
 - **Kurama and the mountains:** Mount Kurama near Kyō is the seat of the great tengu Sōjōbō and the tengu martial monasteries, with sub-monasteries throughout the Japan Alps.
 - **Mount Fuji:** the mountain *is* the goddess Konohanasakuya-hime, asleep, who blossoms in spring. Pilgrims climb her carefully and politely.
 - **Tottori:** the great sand dunes, and Hakuto Shrine, Inaba's home shrine. The locals adore her and know all her lies.
+- **Hōki and the San'in coast:** the Ura side of Rei's home.
+  - *Hōki province* is administered by the tengu monastery of **Mount Daisen**, under the great tengu **Hōkibō**. That makes it sword-and-discipline country, with dojo in every village and tengu patrols on the roads.
+  - *Ura-Yumigahama:* the spit is a pine-forested fishing and cotton-weaving post-town on the San'in road. The ridge behind its fishing village matches Musubi Jinja's ridge and is the far end of the shrine's thin path.
+  - *Sakai:* the harbor at the spit's tip is a busy yokai port of ningyo, kappa and umibōzu traders.
+  - *Izumo* is a day's walk west, so Rei's corner of Ura is very close to the gods.
 - **Kyūshū:** oni clan country, with volcanoes and hot springs. The steaming "hells" (jigoku) of Beppu are run by oni as luxury bathhouses. **Ura-Dejima** sits at Nagasaki.
 - **Ezo (the north):** a land of deep snow whose own peoples and spirits (kamuy) keep their own ways and their own gods, apart from the Izumo council.
 - **The Ryūkyū Kingdom (the south):** an island kingdom with its own gods, priestesses, and the mischievous kijimuna tree-spirits.
